@@ -1,2 +1,0 @@
-# Saroj-Sahoo
-ghanta
